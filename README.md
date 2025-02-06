@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I am Yuma, I am not really into coffee, I drink it just to survive the day.
+Hi I am Yamu.
 
 
 ## 🌐 Socials:
